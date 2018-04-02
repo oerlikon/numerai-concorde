@@ -6,4 +6,4 @@
 
 Your predictions should enjoy originality, concordance and 100% consistency <sup>*</sup>
 
-\* If you don't do your best, they might not
+\* If you didn't do your best, they might not
